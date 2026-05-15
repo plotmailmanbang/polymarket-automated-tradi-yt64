@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket professional Strategy: event-driven-trading & order-book-analysis, the #1 strategy. Includes event-driven-trading and
 
 
 
